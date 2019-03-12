@@ -1,2 +1,2 @@
-# M-th-ng-b-o-0xbitcoin
+# 0xbitcoin
 https://0xbitcoin.org
